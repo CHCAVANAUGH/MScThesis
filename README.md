@@ -1,1 +1,1 @@
-# MScThesis-Conor-Manu
+# MScThesis-Conor
